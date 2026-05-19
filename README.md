@@ -202,6 +202,18 @@ Open an issue if a code stops working or you have questions.
 
 ---
 
+## More Discount Codes
+
+- 👉 [Hostinger VPS Coupon 2026](https://github.com/partners-png/Hostinger-VPS-Coupon-Code) — KVM VPS for developers & AI agents
+- 👉 [Hostinger Horizons Coupon 2026](https://github.com/partners-png/Hostinger-Horizons-Coupon-Code) — AI no-code web app builder
+- 👉 [Hostinger Website Builder Coupon 2026](https://github.com/partners-png/Hostinger-Website-Builder-Coupon-Code) — drag-and-drop site builder
+- 👉 [Base44 Coupon Code 2026](https://github.com/partners-png/Base44-Coupon-Code-2026) — AI no-code app builder
+- 👉 [Base44 Agent Coupon Code 2026](https://github.com/partners-png/Base44-Agent-Coupon-Code-2026) — AI Superagents platform
+- 👉 [Wix Coupon Code 2026](https://github.com/partners-png/Wix-Coupon-Code-2026) — Wix website builder
+
+---
+
+
 ## Quick Copy
 
 ```
