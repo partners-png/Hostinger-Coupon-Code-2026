@@ -2,6 +2,8 @@
 
 > Looking for a working Hostinger coupon code in 2026? This page has the latest verified discounts for every Hostinger product - Website Builder, Web Hosting, Horizons AI Builder, VPS, and OpenClaw - including exclusive community codes that stack on top of Hostinger's base sale price.
 
+<img width="1573" height="764" alt="image" src="https://github.com/user-attachments/assets/50699c7d-1c9d-411c-a4b1-4c426f3143bc" />
+
 ---
 
 ## Active Hostinger Coupon Codes (June 2026)
