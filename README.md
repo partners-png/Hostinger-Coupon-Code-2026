@@ -1,4 +1,4 @@
-# Hostinger Coupon Code 2026 (Updated May 2026)
+# Hostinger Coupon Code 2026 (Updated June 2026)
 
 > ✅ All codes verified and working | Exclusive to the r/VibeCodersNest community
 
