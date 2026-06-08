@@ -1,6 +1,6 @@
-# Hostinger Coupon Code 2026 (Updated June 2026)
+# Hostinger Coupon Code 2026 - Up to 79% Off + Extra 20% With Code
 
-> ✅ All codes verified and working | Exclusive to the r/VibeCodersNest community
+> Looking for a working Hostinger coupon code in 2026? This page has the latest verified discounts for every Hostinger product - Website Builder, Web Hosting, Horizons AI Builder, VPS, and OpenClaw - including exclusive community codes that stack on top of Hostinger's base sale price.
 
 ---
 
